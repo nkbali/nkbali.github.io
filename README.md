@@ -1,1 +1,0 @@
-# nkbali.github.io
